@@ -1,0 +1,1 @@
+# Bugun chiroyli kun bulyapti biz dars utyapmiz
